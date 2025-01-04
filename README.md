@@ -1,4 +1,4 @@
-⭐️🔥 ULTIMATE FORTNITE CHECKER | ⚡ Fast & Reliable | 💻 Cracked by ReverseSeal ⭐️
+⭐️🔥 ULTIMATE FORTNITE CHECKER | ⚡ Fast & Reliable |
 📝 Key Features 📝
 🎯 Multi-Language Support: 🌍 Russian & English included
 🔐 Proxy Compatibility: Supports 🌐 HTTP, 🛡️ SOCKS4, 🛡️ SOCKS5 for seamless operation
